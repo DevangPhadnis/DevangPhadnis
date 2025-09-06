@@ -28,7 +28,7 @@ Here are some ideas to get you started:
 
 - 📫 How to reach me **devangphadnis2001@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1zZT_ia_fIc7dIFU3ai2GFAXPE7kcY-pk/view?usp=drive_link](https://drive.google.com/file/d/1zZT_ia_fIc7dIFU3ai2GFAXPE7kcY-pk/view?usp=drive_link)
+- 📄 Know about my experiences [https://bit.ly/devang-phadnis-resume](Resume Devang Phadnis)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
